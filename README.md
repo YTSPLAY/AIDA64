@@ -1,3 +1,4 @@
 # YATSPLAY 
 ## Всем привет,тут будут размещены характеры моего пк
-[мой youtube](AIDA.html)
+[ХФРФКТЕРИСТИКА](AIDA.html)
+(OhMy! Cyclop Icon 04.png)
