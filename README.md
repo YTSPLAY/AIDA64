@@ -1,3 +1,3 @@
 # YATSPLAY 
 ## Всем привет,тут будут размещены характеры моего пк
-[мой youtube](AIDA.HTML)
+[мой youtube](AIDA.html)
