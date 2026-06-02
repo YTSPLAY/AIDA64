@@ -1,3 +1,3 @@
 # YATSPLAY 
 ## Всем привет,тут будут размещены характеры моего пк
-( youtube ( yotube.com\@ytsplay.com ) )
+[мой youtube](yotube.com/ytsplay2.0)
